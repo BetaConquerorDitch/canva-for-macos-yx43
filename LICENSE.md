@@ -1,4 +1,4 @@
-
+Enhance Canva for macOS with top Canva for macOS Script | shortcut customization + grid systems, the #1 script. Includes shortcut customization and grid systems for a smoother and
 
 
 
